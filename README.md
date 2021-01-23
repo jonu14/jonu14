@@ -1,1 +1,1 @@
-## Dieses Profil zeigt lediglich meine Unfähigkeit, einen universellen Account für jedes Gerät nicht benutzen zu können.
+## Dieses Profil zeigt lediglich meine Unfähigkeit, nicht in der Lage sein zu können, einen einzigen Account zu benutzen.
